@@ -1,0 +1,1 @@
+# ¡Empieza a registrar tus ventas ahora!
